@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BaleWild
-- 👀 I’m interested in almost everything I come gcross.
+- 👀 I’m interested in almost everything I come across.
 - 🌱 I’m currently learning all knowledge in the field of computing.
 - 💞️ I’m looking for various like-minded communities and people.
 - 📫 You can reach me by my email:babelspace963@gmail.com
